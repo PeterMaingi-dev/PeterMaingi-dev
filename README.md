@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PeterMaingi-dev
+- 👋 Hi, I’m Peter Maingi
 - 👀 I’m interested to see dreams come to reality and changing life of those who share the victory 
 - 🌱 I’m currently learning how create mobile responsive web application and Graphic design to enhance my Front-End creativity 
 - 💞️ I’m looking to collaborate on dynamic web application projects from start-ups and companies looking for volunteers
