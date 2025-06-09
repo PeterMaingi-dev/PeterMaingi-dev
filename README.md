@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @PeterMaingi-dev
+- 👀 I’m interested to see dreams come to reality and changing life of those who share the victory 
+- 🌱 I’m currently learning how create mobile responsive web application and Graphic design to enhance my Front-End creativity 
+- 💞️ I’m looking to collaborate on dynamic web application projects from start-ups and companies looking for volunteers
+- 📫 Reach me out via LinkedIn: https://www.linkedin.com/in/peter-maingi-3001202aa or petermaingi435gmail.com
+- 😄 Pronouns: Male
+- ⚡ Fun fact: Did you know the Mona Lisa has no eyebrows. We need to hear what Da-vinci has to say about this, where is the resurrection spell? 😄😄
